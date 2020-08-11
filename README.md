@@ -8,6 +8,18 @@ who swear by it.
 I had successful trades which came with a catch. 
 The catch was that even with successful trades you can't take your money out of Deriv.com.
 
- ![Login to Zonimo image](7CEC8050-70E7-42A7-8BF5-EB7D1B6D7CAA.png)
+### Internet lies
+
+Most pictures that you see online are internet lies. Like my demo account below..
+ 
+![Login to Zonimo image](7CEC8050-70E7-42A7-8BF5-EB7D1B6D7CAA.png)
+
+### Deriv.com lies
+
+Deriv.com will give you a false sens of winning. As you win they expect you to put more money that's when they jump in and take it all.
+Like you can see my real money below ...
+
+![Login to Zonimo image](7CEC8050-70E7-42A7-8BF5-EB7D1B6D7CAA.png)
+
 
 
