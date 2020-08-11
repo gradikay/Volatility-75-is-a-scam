@@ -21,5 +21,11 @@ Like you can see my real money below ...
 
 ![Login to Zonimo image](F5A931A4-4373-4B9E-B469-187D34BAF6E0.jpeg)
 
+Once you start taking profit, you will start losing trades until all the profit are back and you have accumulated more loss.
+
+Check out some of my crazy trades 
+
+![Login to Zonimo image](F5A931A4-4373-4B9E-B469-187D34BAF6E0.jpeg)
+
 
 
