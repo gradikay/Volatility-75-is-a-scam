@@ -25,7 +25,9 @@ Once you start taking profit, you will start losing trades until all the profit 
 
 Check out some of my crazy trades 
 
-![Login to Zonimo image](F5A931A4-4373-4B9E-B469-187D34BAF6E0.jpeg)
+![Login to Zonimo image](4F58B049-E1DE-4117-863C-7B0AA83E9EC4.png)
+
+![Login to Zonimo image](4F58B049-E1DE-4117-863C-7B0AA83E9EC4.png)
 
 
 
