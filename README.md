@@ -27,7 +27,7 @@ Check out some of my crazy trades
 
 ![Login to Zonimo image](4F58B049-E1DE-4117-863C-7B0AA83E9EC4.png)
 
-![Login to Zonimo image](4F58B049-E1DE-4117-863C-7B0AA83E9EC4.png)
+![Login to Zonimo image](7AE73244-8671-46E8-B951-50D2F4C7EA70.png)
 
 
 
