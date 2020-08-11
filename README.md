@@ -8,4 +8,6 @@ who swear by it.
 I had successful trades which came with a catch. 
 The catch was that even with successful trades you can't take your money out of Deriv.com.
 
+ ![Login to Zonimo image](https://github.com/gradikay/Zonimoold/blob/master/zonimo1.PNG)
+
 
