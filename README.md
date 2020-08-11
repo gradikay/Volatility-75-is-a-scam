@@ -8,6 +8,6 @@ who swear by it.
 I had successful trades which came with a catch. 
 The catch was that even with successful trades you can't take your money out of Deriv.com.
 
- ![Login to Zonimo image](https://github.com/gradikay/Zonimoold/blob/master/zonimo1.PNG)
+ ![Login to Zonimo image](https://github.com/gradikay/Volatility-75-is-a-scam/blob/master/5D5D5637-9527-43C5-97C1-2E4C20E88870.png)
 
 
