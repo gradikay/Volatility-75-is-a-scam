@@ -1,2 +1,3 @@
-# Volatility-75-is-a-scam
-Understanding Volatility 75 on Binary.com
+# Volatility 75 is a scam
+
+## Understanding the ins and outs of Volatility 75 on Binary.com / derive.com
